@@ -1,1 +1,1 @@
-# Kauan Davi Leticia Isaac
+atividades curso técnico 
